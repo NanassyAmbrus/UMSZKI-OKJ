@@ -1,0 +1,2 @@
+# UMSZKI-OKJ
+óraianyag UMSZKI OKJ
